@@ -1,4 +1,4 @@
-# 
+# Elite Vegas Pro for PC executor is the best Vegas Pro for PC executor with video-encoding and macro-recording. Safe, reliable, and optimized for maximum performance.
 
 
 
